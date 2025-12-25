@@ -124,10 +124,6 @@ OOMFS:;
   
 AZEL I AM NOT GAY STOP THIS😿😿😿
 
-<div class="tenor-gif-embed" data-postid="4709099047881093568" data-share-method="host" data-aspect-ratio="1.1267" data-width="100%"><a href="https://tenor.com/view/hazbin-hotel-valentino-laugh-giggle-gif-4709099047881093568">Hazbin Hotel Valentino GIF</a>from <a href="https://tenor.com/search/hazbin+hotel-gifs">Hazbin Hotel GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
-
-"<div class="tenor-gif-embed" data-postid="13131991436637428099" data-share-method="host" data-aspect-ratio="1.09211" data-width="100%"><a href="https://tenor.com/view/hazbin-hotel-vox-hazbin-valentino-hazbin-staticmoth-voxval-gif-13131991436637428099">Hazbin Hotel Vox Hazbin GIF</a>from <a href="https://tenor.com/search/hazbin+hotel-gifs">Hazbin Hotel GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>"
-
  
 
 ![1000082522](https://github.com/user-attachments/assets/c51748da-dfd4-4d66-855b-c43a58303ffa)
