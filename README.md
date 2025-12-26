@@ -116,7 +116,7 @@ people under 10 years old unless close, people over 20 years old unless close,do
 i might be weird with some people I'm really close to. please tell me if you're uncomfortable with my behaviour,ty!
 
 OOMFS:;
-@c00lGUI7n7 @StellarHaz3 , @blueberryshadow , @lackadaisiycal , @LeechingMer , @corruptedtalez , @after-lifer
+@N0XIOUS-V0ID @StellarHaz3 , @blueberryshadow , @lackadaisiycal , @LeechingMer , @corruptedtalez , @after-lifer
   FOLLOW THEM, THEY'RE C00L GUYS:3
 
 ![1000082488](https://github.com/user-attachments/assets/b3809246-a817-42f6-86be-e431820bdff6)
