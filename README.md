@@ -12,8 +12,8 @@
 
  @after-lifer - Vox to my Valentino ^_^
 
-Gender:; Non-binary.
-             prononous:;They/Them.
+non-binary!
+             prononous:;She/They
 
   NOTE:;
 I'm kinda introverted but feel free to int! c+h is much appreciated unless I'm with my partner or friends,or i have "dniu.." in my name. I like making new friends, although i might be giving dry responses at first unless i grew really close to you. w2i is preferred.
