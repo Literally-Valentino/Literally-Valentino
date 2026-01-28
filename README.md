@@ -10,15 +10,33 @@
 
  CEO of StaticMoth.
 
- @after-lifer - Vox to my Valentino ^_^
+ @discomforted - Vox to my Valentino ^_^
 
 non-binary!
-             prononous:;She/They
+      
+      
+   
+   
+   prononous:;She/They
 
   NOTE:;
+
+
+
+
+  
 I'm kinda introverted but feel free to int! c+h is much appreciated unless I'm with my partner or friends,or i have "dniu.." in my name. I like making new friends, although i might be giving dry responses at first unless i grew really close to you. w2i is preferred.
 
+
+
+
+
+
 TWO TIME AND VALENTINO FICTKIN!
+
+
+
+
 
 Fandoms I'm in rn . . .
 
@@ -93,11 +111,19 @@ sexists.
 
 
 
+
    i really love matching! so don't be afraid of asking to make matching skins.
 i might be weird with some people I'm really close to. please tell me if you're uncomfortable with my behaviour,ty!
 
+
+
+
 OOMFS:;
-@N0XIOUS-V0ID @StellarHaz3 , @blueberryshadow , @lackadaisiycal , @LeechingMer , @corruptedtalez , @after-lifer
+@Azelicious , @StellarHaz3 , @blueberryshadow , @lackadaisiycal , @LeechingMer , @corruptedtalez , @discomforted
+
+
+
+
   FOLLOW THEM, THEY'RE C00L GUYS:3
 
 ![1000082488](https://github.com/user-attachments/assets/b3809246-a817-42f6-86be-e431820bdff6)
