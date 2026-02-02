@@ -1,10 +1,4 @@
-![1000082487](https://github.com/user-attachments/assets/2a19ce8b-8cc6-4ecf-9142-7573c303a5e6)
-
-
-
-„Oh,you know me too well.“
-
-(best viewed in light mode!)
+# HELLO HELLOO!!>_<
 
  Ichiro/Val!
 
@@ -19,30 +13,36 @@ non-binary!
    
    prononous:;She/They
 
-  NOTE:;
+# NOTE:;
 
 
 
 
   
-I'm kinda introverted but feel free to int! c+h is much appreciated unless I'm with my partner or friends,or i have "dniu.." in my name. I like making new friends, although i might be giving dry responses at first unless i grew really close to you. w2i is preferred.
+I have social anxiety so iwc unless very close! c+h is much appreciated unless I'm with my partner or friends,or i have "dniu.." in my name. I like making new friends, although i might be giving dry responses at first unless i grew really close to you. w2i is preferred.
 
 
 
 
 
 
-TWO TIME AND VALENTINO FICTKIN!
+TWO TIME,VALENTINO AND BROKEN SPAWN FICTKIN^_^
 
 
 
 
 
-Fandoms I'm in rn . . .
+# Fandoms I'm in rn . . .
 
 
 
 -FORSAKEN
+
+
+
+
+-COOKIE RUN:KINGDOM
+
 
 
 
@@ -62,7 +62,6 @@ Fandoms I'm in rn . . .
 
 
 -JIM'S COMPUTER
-
 
 
 
@@ -88,7 +87,7 @@ Fandoms I'm in rn . . .
 -HAZBIN HOTEL
 
 
-Dni list. . .:;
+# Dni list. . .:;
  
 people under 10 years old unless close
 
@@ -111,6 +110,7 @@ sexists.
 
 
 
+# Extra info!!^_^
 
    i really love matching! so don't be afraid of asking to make matching skins.
 i might be weird with some people I'm really close to. please tell me if you're uncomfortable with my behaviour,ty!
@@ -119,21 +119,31 @@ i might be weird with some people I'm really close to. please tell me if you're 
 
 
 OOMFS:;
-@Azelicious , @StellarHaz3 , @blueberryshadow , @lackadaisiycal , @LeechingMer , @corruptedtalez , @discomforted
+@B3RRYM4NIA, @blueberryshadow , @discomforted
 
 
-
+@kaite-kina <-- My very lovely husband!!
 
   FOLLOW THEM, THEY'RE C00L GUYS:3
 
-![1000082488](https://github.com/user-attachments/assets/b3809246-a817-42f6-86be-e431820bdff6)
-
-  
-AZEL I AM NOT GAY STOP THIS😿😿😿
-
- 
 
 ![1000082522](https://github.com/user-attachments/assets/c51748da-dfd4-4d66-855b-c43a58303ffa)
 
 
 i love him
+
+
+![1000020458](https://github.com/user-attachments/assets/70deaadf-b039-40f0-b25b-a21655be0561)
+
+
+are you italin
+
+
+
+![1000020293](https://github.com/user-attachments/assets/1e27429b-f809-49ce-b977-a7bdfd2bd04f)
+
+
+
+
+
+![1000018037](https://github.com/user-attachments/assets/45b01cae-8f98-4546-b970-e4c9e988c6e9)
